@@ -9,3 +9,4 @@ Kunning Kitty: Akash
 PawPaw: As Dan
 Clawz: As TJ
 SwipenBite: as Alan
+Mondale: as Mondale 
